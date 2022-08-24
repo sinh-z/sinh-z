@@ -1,5 +1,5 @@
 Hi, I’m @sinh-z
-- 👀 I’m interested in doggo, sci-fi and cthulhu
+- 👀 I’m interested in doggo, sci-fi and photography
 - 🌱 I’m currently learning game dev 
 
 <!---
