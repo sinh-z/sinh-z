@@ -1,5 +1,5 @@
-Hi, I’m @sichen
-- 👀 I’m interested in doggo, sci-fi and photography
+Hi, I’m @sinh-z
+- 👀 I’m interested in sci-fi and photography
 - 🌱 I’m currently learning game dev 
 
 <!---
