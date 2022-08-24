@@ -1,4 +1,4 @@
-Hi, I’m @sinh-z
+Hi, I’m @sichen
 - 👀 I’m interested in doggo, sci-fi and photography
 - 🌱 I’m currently learning game dev 
 
